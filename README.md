@@ -1,2 +1,2 @@
-# verydangercodes
-DO NOT RUN THESE CODES!  不要运行这些代码！
+THEY ARE VERY VERY VERY DANGER!  
+他们非常非常非常危险！
